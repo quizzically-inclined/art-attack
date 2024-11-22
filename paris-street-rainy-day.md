@@ -6,6 +6,7 @@
 ___
 Artist: Gustave Caillebotte (French) <br>
 Timeline: 1877
+
 ___
 
 - Best known work of Caillebotte
